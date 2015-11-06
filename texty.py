@@ -1,0 +1,5 @@
+'have a great day'
+'all izz well'
+'look at the sunshine'
+'light at the end of the tunnel'
+'beautiful day ahead'
